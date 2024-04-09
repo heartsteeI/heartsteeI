@@ -1,1 +1,1 @@
-![joshua<3](https://cdn.discordapp.com/attachments/970596210413019146/1227064286128635964/IMG_0982.gif?ex=66270bab&is=661496ab&hm=63094c2fd1af136dc7302af8dff67aed22e7c18dedfa727049bac1bda0eb1b69&)
+![joshua<3](https://cdn.discordapp.com/attachments/970596210413019146/1227092390951784508/IMG_0993.gif?ex=662725d8&is=6614b0d8&hm=b3eedbf42aaf8d00161dcd7c2b2993a134c13465beaf8312eb55a47094492374&)
