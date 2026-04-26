@@ -1,10 +1,13 @@
+<p align="center">
+<img width="850" height="130" src="https://files.catbox.moe/3moxr9.png">
+<p align="center">
+  <img width="850" height="650" alt="meojwnej" src="https://files.catbox.moe/qv2ogy.png"/>
+
+
 <h4 align="center"
   
 ໒ྀི✙⠀ ̫  ⠀ ![](https://komarev.com/ghpvc/?username=heartsteeI&label=𐙚+views+++&color=B08E9C)⠀ ˖⠀۶ৎ
-
-
-
 <p align="center">
-  <img width="1000" height="950" alt="meojwnej" src="https://files.catbox.moe/lolsfu.png"/>
-
+<img width="850" height="150" src="https://files.catbox.moe/esepzk.png">
 </p>
+
