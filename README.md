@@ -6,7 +6,7 @@
 
 <h4 align="center"
   
-໒ྀི✙⠀ ̫  ⠀ ![](https://komarev.com/ghpvc/?username=heartsteeI&label=✙+views+++&color=B08E9C)⠀ ˖⠀۶ৎ
+໒ྀི✙⠀ ̫  ⠀ ![](https://komarev.com/ghpvc/?username=heartsteeI&label=✙+cells+++&color=B08E9C)⠀ ˖⠀۶ৎ
 <p align="center">
 <img width="850" height="150" src="https://files.catbox.moe/esepzk.png">
 </p>
